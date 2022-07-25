@@ -1,2 +1,2 @@
 # naver-Blog-to-YT-Playlist
-ㅇㅇ
+https://blog.naver.com/happyphjm1/222716977138
